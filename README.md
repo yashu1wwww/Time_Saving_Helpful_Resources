@@ -245,55 +245,55 @@ the entership
 
 < 𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽𝘀 𝗳𝗼𝗿 𝗝𝗼𝗯 𝗛𝘂𝗻𝘁 >
 
-1. https://lnkd.in/ddVfjGQW
+ https://lnkd.in/ddVfjGQW
 
-2. https://lnkd.in/dgGvnN-R
+ https://lnkd.in/dgGvnN-R
 
-3. https://lnkd.in/diH-5yHc
+ https://lnkd.in/diH-5yHc
 
-4. https://lnkd.in/dGR-uKNK
+ https://lnkd.in/dGR-uKNK
 
-5. https://lnkd.in/du7R-zSY
+ https://lnkd.in/du7R-zSY
 
-6. https://lnkd.in/dJN_jr7d
+ https://lnkd.in/dJN_jr7d
 
-7. https://lnkd.in/deY4pWVF
+ https://lnkd.in/deY4pWVF
 
-8. https://lnkd.in/dp_9tZN4
+ https://lnkd.in/dp_9tZN4
 
-9. https://lnkd.in/dQr8zqqi
+ https://lnkd.in/dQr8zqqi
 
-10. https://lnkd.in/d--irS_c
+ https://lnkd.in/d--irS_c
 
-11. https://lnkd.in/d7BChxT4
+ https://lnkd.in/d7BChxT4
 
-12. https://lnkd.in/dAHh2Rkn
+ https://lnkd.in/dAHh2Rkn
 
-13. https://lnkd.in/d9Gr9kHK
+ https://lnkd.in/d9Gr9kHK
 
-14. https://lnkd.in/gaF2jb6p
+ https://lnkd.in/gaF2jb6p
 
-15. https://lnkd.in/gRT6zTRE
+ https://lnkd.in/gRT6zTRE
 
-16. https://t.me/mylearnshala
+ https://t.me/mylearnshala
 
 
 
 <𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽𝘀 𝗳𝗼𝗿 𝗽𝗲𝗲𝗿 𝗽𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴👩‍💻>
 
-1. https://lnkd.in/dsb-HF9H
+ https://lnkd.in/dsb-HF9H
 
-2. https://lnkd.in/d2M6w8TB
+ https://lnkd.in/d2M6w8TB
 
-3. https://lnkd.in/dUNBfwCN
+ https://lnkd.in/dUNBfwCN
 
-4. https://lnkd.in/dNtwc4ih
+ https://lnkd.in/dNtwc4ih
 
-5. https://lnkd.in/dApejmy2
+ https://lnkd.in/dApejmy2
 
-6. https://lnkd.in/dmMJddWQ
+ https://lnkd.in/dmMJddWQ
 
-7. https://t.me/commitcode
+ https://t.me/commitcode
 
 
 <𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽 𝗳𝗼𝗿 𝗿𝗲𝘀𝗼𝘂𝗿𝗰𝗲𝘀📚>
