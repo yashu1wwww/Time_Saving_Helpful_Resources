@@ -2004,21 +2004,21 @@ PUK code
 
 <𝘼𝙄 𝙩𝙤𝙤𝙡𝙨 𝙩𝙤 𝙧𝙚𝙙𝙪𝙘𝙚 𝙬𝙤𝙧𝙠 𝙝𝙤𝙪𝙧𝙨💻>
 
-1. Logo ➝ http://IconifyAI.com
+Logo ➝ http://IconifyAI.com
   
-2. Design ➝ http://StockImg.ai
+Design ➝ http://StockImg.ai
   
-3. Code ➝ http://Stunning.so
+Code ➝ http://Stunning.so
   
-4. Copywriting ➝ http://Jounce.ai
+Copywriting ➝ http://Jounce.ai
   
-5. Images ➝ http://Midjourney.com
+mages ➝ http://Midjourney.com
   
-6. Slides ➝ http://Deepbrain.io/aistudios
+Slides ➝ http://Deepbrain.io/aistudios
 
-7.website-mixo.ai
+website-mixo.ai
 
-8.easy-peasy.ai
+easy-peasy.ai
 
 
 <Best Websites To Edit Online Video✂️>
