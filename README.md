@@ -242,7 +242,6 @@ jobs
 the entership
 
 
-
 < 𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽𝘀 𝗳𝗼𝗿 𝗝𝗼𝗯 𝗛𝘂𝗻𝘁 >
 
  https://lnkd.in/ddVfjGQW
@@ -2031,6 +2030,49 @@ Slides ➝ http://Deepbrain.io/aistudios
 website-mixo.ai
 
 easy-peasy.ai
+  
+<𝘼𝙞 𝙩𝙤 𝙛𝙪𝙩𝙪𝙧𝙚 𝙥𝙧𝙤𝙤𝙛>
+
+Text:-
+notion ai
+chatgpt
+wordtune
+
+Image:-
+Bria
+Midjourney
+Evoto
+
+Video:-
+vidyo.ai
+maverick
+tavus
+
+Research:-
+scholarcy
+adept
+summate.it
+
+Design:-
+photoroom
+Galileo ai
+uizard
+
+Presentations:-
+Quinvio
+slidesai
+prezo
+
+Spreadsheets:-
+ajelix
+botsheets
+sheet+
+
+Productivity:-
+typly
+merlin
+xembly  
+  
 
 
 <Best Websites To Edit Online Video✂️>
