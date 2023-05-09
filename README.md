@@ -415,6 +415,18 @@ https://www.peopleperhour.com/
 
 https://www.clickworker.com/
 
+https://lnkd.in/dd85FpKh
+
+https://www.wayup.com
+
+https://lnkd.in/dB4ucg7A
+
+https://www.startupers.com
+
+https://lnkd.in/gHstZRhz
+
+https://joinhandshake.com
+
 FlexJobs
 
 Remote.co
