@@ -32,6 +32,8 @@ https://www.learnpython.org/
 
 http://Exercism.org
 
+https://www.youtube.com/
+
 coursera
 
 Infyspringboard.onwingspan.com/
@@ -66,6 +68,14 @@ hackerrank
 
 codechef
 
+https://scrimba.com/learn/htmlandcss
+
+https://web.dev/learn/css/
+
+https://learn.shayhowe.com/html-css/
+
+https://learnhtmlcss.online/
+
 https://www.simplilearn.com/
 
 https://www.coursetk.com/
@@ -75,6 +85,8 @@ https://learnprogramming.online/
 codecamp
 
 inprogrammer
+
+https://www.w3schools.com/
 
 idigitalpreneur
 
@@ -2269,6 +2281,8 @@ Freshersworld
  Future pedia  
   
  <𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝙀𝙙𝙞𝙩 𝙑𝙞𝙙𝙚𝙤 & 𝙋𝙝𝙤𝙩𝙤>
+   
+  Invideo.io 
    
   https://thumbsup.tv
    
