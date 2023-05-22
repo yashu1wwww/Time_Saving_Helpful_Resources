@@ -118,6 +118,7 @@ future learn
 
 https://www.classcentral.com/
 
+
 <👉 𝙁𝙧𝙚𝙚 𝙍𝙤𝙖𝙙𝙢𝙖𝙥 𝙩𝙤 𝘽𝙚𝙘𝙤𝙢𝙚 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙚𝙧💻 >
 
 👉 Frontend Developer : https://lnkd.in/dvDW2-k7
@@ -242,6 +243,7 @@ https://t.me/gocareers
 https://t.me/crackit_jobs
 
 https://t.me/dot_aware
+
 
 <𝘽𝙚𝙨𝙩 𝙈𝙤𝙫𝙞𝙚𝙨 𝙛𝙤𝙧 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙚𝙧𝙨👨‍💻>
 
@@ -2282,7 +2284,7 @@ Freshersworld
   
  <𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝙀𝙙𝙞𝙩 𝙑𝙞𝙙𝙚𝙤 & 𝙋𝙝𝙤𝙩𝙤>
    
-  Invideo.io 
+  Invideo.io(text to video) 
    
   https://thumbsup.tv
    
@@ -2318,14 +2320,124 @@ sportrar.tv
 
 sportstrack.live
    
- m.toucheric.com
+m.toucheric.com
    
  cricfree.io
    
-   
-SportEM(App)
+ SportEM(App)
    
  Pikashow(App)
+   
+<𝙏𝙤𝙥 50 𝘼𝙥𝙥𝙨 𝙏𝙤 𝙈𝙖𝙠𝙚 𝙈𝙤𝙣𝙚𝙮 𝙊𝙣𝙡𝙞𝙣𝙚💸>
+   
+>Selling Old Stuff
+   
+Bookscouter
+
+Dealo
+
+Craiglist
+
+Vinted
+   
+Ebay
+
+Fb Marketplace Wish
+
+Writing Services
+   
+Mental floss
+   
+Pro blogger
+
+Contently 
+   
+Listverse
+
+Proof Reading 
+   
+Gramlee Scribendi
+
+Scribbr
+   
+Prootreadanywhere
+
+>Selling Photos
+
+Foap Adobe Stock
+
+Shutter Stock
+
+Alamy
+
+Getty Images
+
+>Video Ads
+
+Youtube
+
+Twitch
+
+Dailymotion
+
+Voice Work
+
+Voices.com
+   
+Voice Bunny
+
+Voice123
+
+Snap Recording
+
+>Physical Tasks
+
+Taki
+   
+Dolly
+
+Bellhops
+
+Lawn Love
+
+>Online Surveys
+
+Swag bucks
+   
+Cashkarma
+   
+Inbox Dollers
+
+Vip Voice
+
+>Writing Ebooks
+
+Sqribble
+  
+Kindle Publishing
+  
+<Top 10 Ai Tools>
+  
+Talk to books
+  
+Tldv.io
+  
+steve.io
+  
+autodraw.com
+  
+imglarger.com
+  
+resumemaker.ai
+  
+durable.io
+  
+tinywow.com
+
+freeconvert.com  
+  
+  
+  
 
 
 
