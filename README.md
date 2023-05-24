@@ -22,6 +22,8 @@ learnvern (Favourite ❤️)
 
 Course Buffet
 
+tutorialfreak.com
+
 https://www.crio.do/
 
 https://www.educative.io/explore
@@ -117,6 +119,10 @@ academic earth
 future learn
 
 https://www.classcentral.com/
+
+courses.wscubetech.com
+
+woliframalpha(solve maths)
 
 
 <👉 𝙁𝙧𝙚𝙚 𝙍𝙤𝙖𝙙𝙢𝙖𝙥 𝙩𝙤 𝘽𝙚𝙘𝙤𝙢𝙚 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙚𝙧💻 >
