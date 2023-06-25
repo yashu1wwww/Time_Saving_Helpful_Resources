@@ -20,6 +20,10 @@
 
 learnvern (Favourite ❤️)
 
+geeksforgeeks
+
+codeacademy
+
 Course Buffet
 
 tutorialfreak.com
@@ -92,6 +96,16 @@ inprogrammer
 
 https://www.w3schools.com/
 
+great learning
+
+Edx
+
+treehouse
+
+tutorialpoints
+
+udacity
+
 idigitalpreneur
 
 https://in.skillup.online/
@@ -113,8 +127,6 @@ Blockchain → http://cryptozombies.io
 html,css-https://learnhtmlcss.online/
 
 crytpo-https://cryptozombies.io/
-
-edx
 
 academic earth
 
