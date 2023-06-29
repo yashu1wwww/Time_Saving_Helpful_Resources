@@ -310,7 +310,23 @@ the entership
 
  https://t.me/mylearnshala
 
+ https://t.me/karishmaticmarketer
 
+ https://t.me/freshopenings
+
+ https://t.me/freshershunt
+
+ https://t.me/apuzzindia
+
+ https://t.me/OfficialAasma
+
+ https://t.me/futurefinds88
+
+ https://t.me/Karnataka_Careers_Free_Govt_Jobs
+
+ https://t.me/Bangalore_jobs 
+
+ https://t.me/JobsinTumkur
 
 <𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽𝘀 𝗳𝗼𝗿 𝗽𝗲𝗲𝗿 𝗽𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴👩‍💻>
 
@@ -764,7 +780,45 @@ https://careers.jbhunt.com/jobs
 
 https://fromcommunity.com/jobs
 
-https://monetizem.applytojob.com/apply/
+https://monetizem.applytojob.com/apply
+
+https://shorturl.at/rzJLN
+
+https://shorturl.at/sCRS4
+
+<permanent work from home jobs>
+
+https://www.3mindia.in/3M/en_IN/careers-in/
+
+Airbnb
+
+atlassian
+
+blackbaud
+
+dropbox
+
+aweber
+
+ubspot
+
+Inboxdone
+
+Wordvice
+
+Robert half
+
+Leads.io
+
+Yelp career
+
+http://bit.ly/3tSvDQH
+
+https://de.jobsyn.org/954cb3383d824e9bbc2b648a9cd1bff85073
+
+https://careers.jbhunt.com/jobs
+
+https://careers.northerntrust.com
 
 <𝘿𝙊𝙒𝙉𝙇𝙊𝘼𝘿 𝙋𝘾 𝙋𝘼𝙄𝘿 𝙋𝙍𝙊𝙂𝙍𝘼𝙈/𝙂𝘼𝙈𝙀💻> 
 
