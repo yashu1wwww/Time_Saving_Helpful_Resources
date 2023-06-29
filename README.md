@@ -736,6 +736,10 @@ Root Stock Jobs
 
 <𝙂𝙚𝙣𝙚𝙧𝙖𝙡>
 
+Cutshot.io
+
+Workindia.in
+
 https://www.seekho.ai/jobs
 
 https://geeksgod.com/#
