@@ -474,6 +474,8 @@ Remote.co
 
 Jobgether
 
+zip recruiters
+
 Workew: http://workew.com
 
 Pangian: http://pangian.com
@@ -746,6 +748,23 @@ Cybertecz
 
 Freeshunt
 
+ < 𝙅𝙤𝙗𝙨 𝙇𝙞𝙣𝙠𝙩𝙧𝙚𝙚𝙨🏢 >
+
+https://linktr.ee/officialjobspandit
+
+https://shorturl.at/jkqBU
+
+https://shorturl.at/rxFK4
+
+https://www.careerbuilder.com
+
+https://shorturl.at/chpN1
+
+https://careers.jbhunt.com/jobs
+
+https://fromcommunity.com/jobs
+
+https://monetizem.applytojob.com/apply/
 
 <𝘿𝙊𝙒𝙉𝙇𝙊𝘼𝘿 𝙋𝘾 𝙋𝘼𝙄𝘿 𝙋𝙍𝙊𝙂𝙍𝘼𝙈/𝙂𝘼𝙈𝙀💻> 
 
