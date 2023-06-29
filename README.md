@@ -860,6 +860,8 @@ Root Stock Jobs
 
 <𝙂𝙚𝙣𝙚𝙧𝙖𝙡>
 
+http://freshersgold.com
+
 Cutshot.io
 
 Workindia.in
@@ -913,6 +915,12 @@ https://monetizem.applytojob.com/apply
 https://shorturl.at/rzJLN
 
 https://shorturl.at/sCRS4
+
+https://t.me/jobshuntindia
+
+https://t.me/seekerasit
+
+https://linktr.ee/Seekeras
 
 <permanent work from home jobs>
 
