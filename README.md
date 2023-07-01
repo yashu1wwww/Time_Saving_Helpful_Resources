@@ -1040,7 +1040,11 @@ Social Media Marketing
 <𝐂𝐡𝐚𝐩𝐭𝐠𝐩𝐭 𝐀𝐥𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐯𝐞💬>
 
 
-https://www.perplexity.ai/
+https://www.perplexity.ai
+
+google bard ai
+
+bing ai
 
 https://chat.tgbot.co
 
