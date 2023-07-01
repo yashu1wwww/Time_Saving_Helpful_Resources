@@ -139,6 +139,7 @@ courses.wscubetech.com
 woliframalpha(solve maths)
 
 
+
 <👉 𝙁𝙧𝙚𝙚 𝙍𝙤𝙖𝙙𝙢𝙖𝙥 𝙩𝙤 𝘽𝙚𝙘𝙤𝙢𝙚 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙚𝙧💻 >
 
 👉 Frontend Developer : https://lnkd.in/dvDW2-k7
@@ -327,6 +328,7 @@ the entership
  https://t.me/Bangalore_jobs 
 
  https://t.me/JobsinTumkur
+ 
 
 <𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽𝘀 𝗳𝗼𝗿 𝗽𝗲𝗲𝗿 𝗽𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴👩‍💻>
 
@@ -343,6 +345,7 @@ the entership
  https://lnkd.in/dmMJddWQ
 
  https://t.me/commitcode
+ 
 
 
 <𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽 𝗳𝗼𝗿 𝗿𝗲𝘀𝗼𝘂𝗿𝗰𝗲𝘀📚>
@@ -832,6 +835,7 @@ Pepechat LLC
 
 Rl
 
+
 <𝙅𝙤𝙗 𝙗𝙤𝙖𝙧𝙙𝙨 𝙬𝙞𝙩𝙝 𝙧𝙚𝙢𝙤𝙩𝙚 𝙤𝙥𝙩𝙞𝙤𝙣𝙨>
 
 Tech
@@ -857,6 +861,7 @@ Tech Jobs for Good
 Escape the City
 
 Root Stock Jobs
+
 
 <𝙂𝙚𝙣𝙚𝙧𝙖𝙡>
 
@@ -893,6 +898,7 @@ Foundit
 Cybertecz
 
 Freeshunt
+
 
  < 𝙅𝙤𝙗𝙨 𝙇𝙞𝙣𝙠𝙩𝙧𝙚𝙚𝙨🏢 >
 
@@ -956,6 +962,7 @@ https://careers.jbhunt.com/jobs
 
 https://careers.northerntrust.com
 
+
 <𝘿𝙊𝙒𝙉𝙇𝙊𝘼𝘿 𝙋𝘾 𝙋𝘼𝙄𝘿 𝙋𝙍𝙊𝙂𝙍𝘼𝙈/𝙂𝘼𝙈𝙀💻> 
 
 https://getintopc.com/ (Fav❤️)
@@ -1003,7 +1010,7 @@ https://giveaway.tickcoupon.com/
 https://giveawayradar.weebly.com/
  
 
-<12 𝓢𝓴𝓲𝓵𝓵𝓼 𝓦𝓲𝓽𝓱 𝓱𝓲𝓰𝓱 𝓓𝓮𝓶𝓪𝓷𝓭 𝓲𝓷 2023🏂>
+<12 𝙎𝙠𝙞𝙡𝙡𝙨 𝙒𝙞𝙩𝙝 𝙃𝙞𝙜𝙝 𝘿𝙚𝙢𝙖𝙣𝙙 2023🏂>
 
 Project Management
 
@@ -1177,6 +1184,8 @@ Freecoursesite
 
 Dicsudemy
 
+Torrentz2
+
 https://freepremiumcourse.com/
  
  
@@ -1259,6 +1268,7 @@ Improvely
 
 Hostinger
 
+
 <𝙁𝙞𝙣𝙙 𝘽𝙪𝙜 𝘽𝙪𝙣𝙩𝙮🤖>
 
 https://earn.superteam.funz 
@@ -1337,6 +1347,7 @@ Fancy Hands
 Assistant match
   
 Life Bushido
+
 
 
 <𝘽𝙚𝙨𝙩 𝘾𝙮𝙗𝙚𝙧 🎞️>
@@ -1429,6 +1440,7 @@ http://App.binaryedge.io
 http://Viz.Greynoise.io/table
 
 Publicwww.com
+
  
  
 <𝘾𝙧𝙚𝙖𝙩𝙚 𝙁𝙧𝙚𝙚 𝙒𝙚𝙗𝙨𝙞𝙩𝙚🕸️>
@@ -1440,7 +1452,7 @@ Nicepage
 Wix
  
 
-<𝓑𝓮𝓼𝓽 𝓢𝓲𝓽𝓮𝓼 𝓽𝓸 𝓓𝓸𝔀𝓷𝓵𝓸𝓪𝓭 𝓕𝓻𝓮𝓮 𝓟𝓓𝓕📕>
+<𝘽𝙚𝙨𝙩 𝙁𝙞𝙡𝙚𝙨 𝙏𝙤 𝘿𝙤𝙬𝙣𝙡𝙤𝙖𝙙 𝙁𝙧𝙚𝙚 𝙋𝙙𝙛📕>
 
 Pdfdrive
 
@@ -1663,6 +1675,7 @@ https://alternativeto.net/
 http://Media.io
  
 https://t.me/newfileconverterbot (telegram bot convert any files)
+
  
  <𝘽𝙚𝙨𝙩 𝘿𝙚𝙨𝙞𝙜𝙣 𝙏𝙤𝙤𝙡❇️>
  
@@ -1687,6 +1700,7 @@ https://t.me/newfileconverterbot (telegram bot convert any files)
 🔡 Free Fonts : Fonts.Google
   
 📝 Best Paired Fonts : Fontjoy
+
   
   
 <𝙎𝙤𝙢𝙚 𝙐𝙨𝙚𝙛𝙪𝙡 𝙀-𝙇𝙚𝙖𝙧𝙣𝙞𝙣𝙜 𝙋𝙡𝙖𝙩𝙚𝙛𝙤𝙧𝙢📓>
@@ -1708,6 +1722,7 @@ www.academicjournals.org
 codeacademy.org
  
 youtube.com/education
+
 
 <𝘾𝙤𝙢𝙥𝙖𝙣𝙞𝙚𝙨 𝙃𝙞𝙧𝙚 𝙁𝙧𝙚𝙨𝙝𝙚𝙧𝙨 𝙊𝙛𝙛 𝙘𝙖𝙢𝙥𝙪𝙨🏭>
 
@@ -1829,6 +1844,7 @@ MorganStanley:http://lnkd.in/d53kRcp3
 
 👉Yash Technologies:https://lnkd.in/d6Usmf4D
 
+
 <𝐂𝐨𝐦𝐩𝐚𝐧𝐢𝐞𝐬 𝐖𝐡𝐢𝐜𝐡 𝐇𝐢𝐫𝐞 𝐅𝐫𝐞𝐬𝐡𝐞𝐫𝐬 𝐑𝐞𝐦𝐨𝐭𝐞𝐥𝐲 𝐅𝐫𝐢𝐞𝐧𝐝𝐥𝐲💻>
 
 👉 Airtable : https://airtable.com
@@ -1948,6 +1964,7 @@ https://lnkd.in/dsKtGeCV
 
 👉 Instamobile : https://instamobile.io
 
+
 <𝙏𝙤𝙥 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝙁𝙞𝙣𝙙 𝙅𝙤𝙗🏭>
  
 👉 Upwork: https://upwork.com
@@ -2035,6 +2052,7 @@ https://lnkd.in/dsKtGeCV
 👉 site:greenhouse.iosite:level.co "remote"
 
 👉 site:greenhouse.iosite:level.co entry level AND ("$60,000" $40,000) and remote"
+
 
 <𝙏𝙤𝙥 30 𝙒𝙚𝙗 𝙝𝙤𝙨𝙩𝙞𝙣𝙜 𝙨𝙞𝙩𝙚𝙨👨‍💻>
 
@@ -2258,6 +2276,7 @@ Execute from Emergency dial screen to unlock
 PUK code
 05#
 
+
 <𝘼𝙄 𝙩𝙤𝙤𝙡𝙨 𝙩𝙤 𝙧𝙚𝙙𝙪𝙘𝙚 𝙬𝙤𝙧𝙠 𝙝𝙤𝙪𝙧𝙨💻>
 
 Logo ➝ http://IconifyAI.com
@@ -2275,6 +2294,7 @@ Slides ➝ http://Deepbrain.io/aistudios
 website-mixo.ai
 
 easy-peasy.ai
+
   
 <𝘼𝙞 𝙩𝙤 𝙛𝙪𝙩𝙪𝙧𝙚 𝙥𝙧𝙤𝙤𝙛>
 
@@ -2373,7 +2393,7 @@ Qwant
 Ecosia
 
 
-<Best Websites To Edit Online Video✂️>
+<𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝙀𝙙𝙞𝙩 𝙊𝙣𝙡𝙞𝙣𝙚 𝙑𝙞𝙙𝙚𝙤✂️>
   
 synthesia ai  
   
@@ -2490,6 +2510,7 @@ Angelist
 Letsintern
   
 Freshersworld  
+
   
 <𝙏𝙤𝙥 10 𝙗𝙚𝙨𝙩 𝙨𝙚𝙘𝙧𝙚𝙩 𝘼𝙞 𝙬𝙚𝙗𝙨𝙞𝙩𝙚 𝙖𝙣𝙙 𝙩𝙤𝙤𝙡𝙨 𝙗𝙚𝙩𝙩𝙚𝙧 𝙩𝙝𝙖𝙣 𝘾𝙝𝙖𝙩 𝙂𝙥𝙩>
 
@@ -2512,6 +2533,7 @@ Freshersworld
  Tome 
   
  Future pedia  
+ 
   
  <𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝙀𝙙𝙞𝙩 𝙑𝙞𝙙𝙚𝙤 & 𝙋𝙝𝙤𝙩𝙤>
    
@@ -2558,6 +2580,7 @@ m.toucheric.com
  SportEM(App)
    
  Pikashow(App)
+ 
    
 <𝙏𝙤𝙥 50 𝘼𝙥𝙥𝙨 𝙏𝙤 𝙈𝙖𝙠𝙚 𝙈𝙤𝙣𝙚𝙮 𝙊𝙣𝙡𝙞𝙣𝙚💸>
    
