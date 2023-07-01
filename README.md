@@ -840,7 +840,7 @@ Rl
 
 Tech
 
-Wellfound (formerly AngelList Talent)
+Wellfound (formerly AngelLists Talent)
 
 PowerToFly
 
