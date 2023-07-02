@@ -1,4 +1,4 @@
-# Time-saving helpful resources
+# Time-Saving Helpful Resources
 
 
 <h3 align="center">
