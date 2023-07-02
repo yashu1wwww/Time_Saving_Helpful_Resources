@@ -138,6 +138,18 @@ courses.wscubetech.com
 
 woliframalpha(solve maths)
 
+< 𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚 𝙏𝙤 𝘾𝙧𝙖𝙘𝙠 𝘼𝙣𝙮 𝙄𝙣𝙩𝙚𝙧𝙫𝙞𝙚𝙬 >
+
+Interview warmup
+
+Pramp Interview 
+
+LinkedIn Interview Preparation
+
+Interview Buddy Preparation 
+
+Glassdoor Interview Preparation
+
 
 
 <👉 𝙁𝙧𝙚𝙚 𝙍𝙤𝙖𝙙𝙢𝙖𝙥 𝙩𝙤 𝘽𝙚𝙘𝙤𝙢𝙚 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙚𝙧💻 >
