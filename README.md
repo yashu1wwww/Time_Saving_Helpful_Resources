@@ -288,6 +288,28 @@ jobs
 
 the entership
 
+< 𝙏𝙤𝙥 10 𝙒𝙛𝙝 𝙄𝙣𝙩𝙚𝙧𝙣𝙨𝙝𝙞𝙥 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙁𝙤𝙧 𝙎𝙩𝙪𝙙𝙚𝙣𝙩𝙨 >
+
+www.ncs.gov.in  
+
+www.mhrd.gov.in 
+
+www.iccr.gov.in 
+
+www.digilocker.gov.in 
+
+myscheme.gov.in
+
+https://pmjandhanyojana.co.in/indian-government-internship-programs/ 
+
+http://www.mca.gov.in/Ministry/pdf/Internship_24012017.pdf
+
+ https://www.careindia.org/individual/internship/ 
+
+Internship with Reserve Bank of India- Email: cgmsru@rbi.org.in
+
+ http://www.cci.gov.in/sites/default/files/cci_pdf /internsgdline2013.pdf
+
 
 < 𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺 𝗴𝗿𝗼𝘂𝗽𝘀 𝗳𝗼𝗿 𝗝𝗼𝗯 𝗛𝘂𝗻𝘁 >
 
